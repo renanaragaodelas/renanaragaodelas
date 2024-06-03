@@ -10,4 +10,6 @@ meu nome é Renan Aragão
 
 00001118043170SP@al.educacao.sp.gov.br
 
-  !.[.].(![image](https://github.com/renanaragaodelas/renanaragaodelas/assets/170944901/f87b335c-f7f3-4e06-bd35-08f03d084c8a)
+  ![](https://media1.tenor.com/m/m2HlW_iClNUAAAAC/demon-slayer-kimetsu-no-yaiba.gif)
+
+  
